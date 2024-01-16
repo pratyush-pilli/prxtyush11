@@ -3,6 +3,10 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 * 🌍  I'm based in India
 * ✉️  You can contact me at [pratyushpilli11@gmail.com](mailto:pratyushpilli11@gmail.com)
+* ⚡  Guy in the chair for spiderman....🕷.
+  
+  ![SpidermanGIF](https://github.com/prxtyush11/prxtyush11/assets/102947709/b871a358-9069-4b40-b0f5-f7d1f6cc54de)
+
 
 ### Skills
 
